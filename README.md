@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ChiroKatze07
-- 👀 I’m interested in [Video Games]
+- 👀 I’m interested in [Video Games/Stupid Things (eg: Burgerpommes Dislikes)]
 - 🌱 I’m currently learning [Informatik]
 - 💞️ I’m looking to collaborate on [nothing]
 - 📫 How to reach me [can't reach me]
